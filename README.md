@@ -1,3 +1,3 @@
-# Furtainment-careers
+# Furtainment Careers Guide
 
 Coming soon
